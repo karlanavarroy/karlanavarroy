@@ -28,7 +28,9 @@
 
 
 📧 karlanavarroyanes@gmail.com
+
 🔗 www.linkedin.com/in/karla-navarro-y
+
 💡 instagram.com/karlanavarroy
 
 
